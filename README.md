@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>    🔭 I’m currently working on Personal portfolio<br>    🌱 I’m currently learning Unity and Blender<br>    👨‍💻 All of my projects are available at https://github.com/R9hd<br>    💬 Ask me about Game development, Volunteer experience and social engineering!<br>    📫 How to reach me raghadalshihry@gmail.com<br>    📄 Know about my experiences https://drive.google.com/file/d/1W1IrON_iM0m415KbrIZSimp1kgJDDBN2/view?usp=sharing<br>    ⚡ Fun fact I speak Arabic 🇸🇦, English 🇬🇧, and a bit of Japanese 🇯🇵!<br>
+<br>    🔭 I’m currently working on 3D Project<br>    🌱 I’m currently learning Unity and Blender<br>    👨‍💻 All of my projects are available at https://github.com/R9hd<br>    💬 Ask me about Game development, Volunteer experience and social engineering!<br>    📫 How to reach me raghadalshihry@gmail.com<br>    📄 Know about my experiences https://drive.google.com/file/d/1W1IrON_iM0m415KbrIZSimp1kgJDDBN2/view?usp=sharing<br>    ⚡ Fun fact I speak Arabic 🇸🇦, English 🇬🇧, and a bit of Japanese 🇯🇵!<br>
 
 <br>
 
